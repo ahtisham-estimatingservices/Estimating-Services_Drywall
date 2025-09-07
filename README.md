@@ -1,4 +1,4 @@
-# Drywall Estimating Proposal  
+# A Propoal for Construction Cost Estimation - Drywall 
 **By Blueprint Metrics Services (BMS)**  
 
 ---
@@ -44,13 +44,26 @@ We have partnered with US subcontractors on **300+ drywall projects** across **C
 
 ---
 
+Portfolio of Work
+
+Explore our portfolio to see examples of our work and proven success in action:
+
+[Google Drive – Project Portfolio](https://drive.google.com/drive/folders/1ZqJugSjIrXdr8paJAosl8CRL1y17Q2FK?usp=drive_link)
+
+---
+
 ## Next Steps  
 We’d welcome the opportunity to **schedule a brief call** to discuss:  
 - How our tailored services can enhance your estimating process.  
 - Specific challenges you’re facing in drywall estimation.  
-- Ways we can directly contribute to your company’s success.  
+- Ways we can directly contribute to your company’s success. 
+
+**Email**: [blueprintmetricsservices@gmail.com](mailto:blueprintmetricsservices@gmail.com)
+
+Let’s build smarter — together.
 
 ---
 
 **Sincerely,**  
+
 *Team Blueprint Metrics Services*  
